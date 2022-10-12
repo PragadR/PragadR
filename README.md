@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @PragadR
+- 👀 I’m interested in new technologies, super cars and bikes
